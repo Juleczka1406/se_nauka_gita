@@ -1,0 +1,1 @@
+Nauka gita - podejście drugie
